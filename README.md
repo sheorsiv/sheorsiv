@@ -1,5 +1,5 @@
 - hi im sheorsiv
-- me is 16 year old proot
+- me is 17 year old proot
 - trying to learn shit
 - idk what to put here so
 - https://sheorsiv.carrd.co/
